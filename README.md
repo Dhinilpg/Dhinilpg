@@ -8,7 +8,7 @@ I'm a passionate and data-driven MSc student in Information Technology with a fo
 
 * 👯 I’m open to collaborating on projects related to data analytics, business intelligence, or financial analysis.
 
-* 📫 How to reach me: dhinilgangadharpg@gmail.com
+* 📫 How to reach me: dhinilparachilikadgangadharan@gmail.com
 
 ---
 
